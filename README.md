@@ -1,2 +1,1 @@
-my name is salman 
-kabir phili 
+i love you pakhi
