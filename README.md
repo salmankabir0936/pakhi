@@ -1,2 +1,1 @@
-i love you pakhi ami tomake valobashi
-pakhi pakhi
+i love you pakhi
