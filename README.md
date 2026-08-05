@@ -1,1 +1,1 @@
-pagli pagli
+pagol er pagli
