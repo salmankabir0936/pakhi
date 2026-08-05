@@ -1,1 +1,1 @@
-PAKHI PAKHI
+pagli pagli
