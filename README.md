@@ -1,1 +1,1 @@
-pagol er pagli
+pakhi pakhi
