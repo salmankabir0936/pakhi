@@ -1,1 +1,1 @@
-PAKHI pakhi
+PAKHI PAKHI
